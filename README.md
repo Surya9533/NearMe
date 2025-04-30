@@ -177,7 +177,7 @@ this theatre costs high eventhough it costs high it is a very perfect, comfortab
 the lights in this theatre looks extrodinary
 it consists of a single auditorium with rows of comfortable padded seats
 it also have a concession stand for buying snacks and drinks. 
-contact number:9345564315
+contact number:9345600211
 <p>
 </body>
 </html>
